@@ -1,2 +1,2 @@
 # hello-world
-First repository as a bigger coder
+First repository as a beginner developer
