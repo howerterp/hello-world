@@ -8,4 +8,4 @@ Interesting stuff about me:
 My favorite food is sushi or steak
 I'm in a redneck youtube video with 14(ish) Million Views
 I took a year off of school to figure my life out 
-I also love lifting so yeah, thats me in a nutshell 
+I also love lifting so yeah, thats me in a nutshell
